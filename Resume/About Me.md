@@ -2,7 +2,6 @@
 
 # About Me
 
-----
 ## Who is Brittany Jones?
 
 
