@@ -4,13 +4,13 @@
 
 
 #### _Imagine Children's Art Museum_ | Everett, WA    
-Sept. 2008 to December 2008
+**Sept. 2008 to December 2008**
 
 #### _Cascade High School Track and Field_ | Everett, WA  
-March 2010 to June 2010
+**March 2010 to June 2010**
  
 #### _Downtown Emergency Services Center_ | Seattle, WA   
-Feb. 2015 to March 2015  
+**Feb. 2015 to March 2015**  
  
 #### _Volunteer Coordination at YouthCare_ | Seattle, WA   
-Aug. 2017 to Present
+**Aug. 2017 to Present**
