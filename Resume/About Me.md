@@ -12,6 +12,6 @@
 
 * Brittany Jones works in the field of social services, and lives to use her problem solving skills, logic, and compassion to help underrepresented members of her community learn life skills. If you ask her what motivates her to wake up in the morning, she will tell you her motivation is helping others. 
 
-* Brittany Jones believes in the power of people, and the goodness of humanity. 
+* Brittany Jones believes in the power of people, and the goodness of humanity. Brittany knows that one day, we will live in a society free of judgement and hate, where everyone can live peacefully as one entity.
 
 * In her [free time](https://www.etsy.com/shop/TerrenaTactus), Brittany enjoys hiking in the beautiful Pacific Northwest, mushroom hunting, silversmithing, beach combing, reusing and recycling, art creating, and soap making.
