@@ -15,3 +15,5 @@
 * Brittany Jones believes in the power of people, and the goodness of humanity. Brittany knows that one day, we will live in a society free of judgement and hate, where everyone can live peacefully as one entity.
 
 * In her [free time](https://www.etsy.com/shop/TerrenaTactus), Brittany enjoys hiking in the beautiful Pacific Northwest, mushroom hunting, silversmithing, beach combing, reusing and recycling, art creating, and soap making.
+
+## Want to know more?
