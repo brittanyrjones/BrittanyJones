@@ -6,7 +6,7 @@
 ## Who is Brittany Jones?
 
 
->Brittany Jones was born on [December 6th](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Resume%20inserts/On%20this%20day), 1990, in Colorado Springs, Colorado. At age two, Brittany and her family moved to Seattle, Washington. This is the place Brittany calls home, and she dreams of making her community a better place.
+>Brittany Jones was born on [December 6th](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Resume%20inserts/On%20this%20day.md), 1990, in Colorado Springs, Colorado. At age two, Brittany and her family moved to Seattle, Washington. This is the place Brittany calls home, and she dreams of making her community a better place.
 
 >Brittany Jones is a hard worker who is determined, creative, and thoughtful. 
 
