@@ -2,7 +2,7 @@
 
 
 # Skills
-___
+
 ## Hard Skills
 * Microsoft Office Suite
 * Photoshop
@@ -22,7 +22,7 @@ ___
 * Problem Solving
 
 # Certifications
-___ 
+
 * Nursing Assistant Registered
 * Blood Borne Pathogens
 * CSEC Youth Training
