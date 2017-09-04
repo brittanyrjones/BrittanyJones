@@ -21,6 +21,8 @@
 * Adaptability
 * Collaboration
 * Problem Solving
+* Great with People
+* Team Player
 
 # Certifications
 * Nursing Assistant Registered
