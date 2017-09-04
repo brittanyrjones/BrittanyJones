@@ -4,13 +4,13 @@
 
 
 #### _Western Washington University_ | Bellingham, WA   
-Sept. 2009 to June 2012    
+**Sept. 2009 to June 2012**   
 ~125 Credit hours completed   
 
 #### _Everett Community College_ | Everett, WA   
-Sept. 2012 to Jan. 2013    
+**Sept. 2012 to Jan. 2013**    
 15 Credit hours completed
 
 #### _Cascade High School_ | Everett, WA    
-Sept. 2005 to June 2009   
+**Sept. 2005 to June 2009**   
 High School Diploma   
