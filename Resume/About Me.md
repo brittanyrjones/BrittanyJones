@@ -20,6 +20,12 @@
 
 * In her [free time](https://www.etsy.com/shop/TerrenaTactus), Brittany enjoys hiking in the beautiful Pacific Northwest, mushroom hunting, silversmithing, beach combing, learning code, reusing and recycling, art creating, and soap making.
 
+## How to Contact Brittany Jones
+### Phone (call/text)
+206-518-1417
+### Email
+brittany.r.jones@hotmail.com
+
 ## Want to know more?
 
 [<img src="https://github.com/brittanyrjones/BrittanyJones/blob/master/Images/linkedin_circle_black-512%20(1).png" width="50" height="50"/>](https://www.linkedin.com/in/brittany-jones-242730146/)[<img src="https://github.com/brittanyrjones/BrittanyJones/blob/master/Images/twitter-2.png" width="50" height="50"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Education.md)[<img src="https://github.com/brittanyrjones/BrittanyJones/blob/master/Images/facebook-2.png" width="50" height="50"/>](https://www.facebook.com/profile.php?id=1578660027)[<img src="https://github.com/brittanyrjones/BrittanyJones/blob/master/Images/2d6e18_da58655e878b4229b79e5015271f1203-mv2.png" width="42" height="42"/>](https://www.etsy.com/shop/TerrenaTactus)
