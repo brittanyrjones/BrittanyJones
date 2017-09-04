@@ -10,7 +10,7 @@
 
 >Brittany Jones is a hard worker who is determined, creative, and thoughtful. 
 
->Brittany Jones works in the field of social services, and loves to use her problem solving skills, logic, and compassion to help underrepresented members of her community learn life skills. 
+>Brittany Jones works in the field of social services, and lives to use her problem solving skills, logic, and compassion to help underrepresented members of her community learn life skills. If you ask her what motivates her to wake up in the morning, she will tell you her motivation is helping others. 
 
 >Brittany Jones believes in the power of people, and the goodness of humanity. 
 
