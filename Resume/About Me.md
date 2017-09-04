@@ -8,6 +8,8 @@
 
 * Brittany Jones was born on [December 6th](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Resume%20inserts/On%20this%20day.md), 1990, in Colorado Springs, Colorado. At age two, Brittany and her family moved to Seattle, Washington. This is the place Brittany calls home, and she dreams of making her community a better place.
 
+* Brittany Jones uses she/her and they/them pronouns. 
+
 * Brittany Jones is a hard worker who is determined, creative, and thoughtful. 
 
 * Brittany Jones works in the field of social services, and lives to use her problem solving skills, logic, and compassion to help underrepresented members of her community learn life skills. Brittany hopes that her clients will one day contribute equally to the diverse framework of Seattle. If you ask her what motivates her to wake up in the morning, she will tell you her motivation is helping others acccomplish their goals. 
