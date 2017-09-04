@@ -11,6 +11,7 @@
 * Basic computer troubleshooting
 * Typing 
 * Research Methods
+* Fluent in American Sign Language
 
 ## Soft Skills
 * Creativity 
