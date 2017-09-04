@@ -46,3 +46,6 @@ ___
 **June 2011 to May 2012** | Medical Device Cleaning Technician
 
 I was required to refurbish medical probes quickly, while maintaining perfect quality. I inspected my work and the work of others, to ensure perfection before shipping out product to hospitals. I was successful at Renu Medical because I am self reliant, a self starter, and meticulous about fine details.
+
+
+### Professional references available upon request
