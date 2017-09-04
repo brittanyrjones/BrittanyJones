@@ -17,3 +17,6 @@
 * In her [free time](https://www.etsy.com/shop/TerrenaTactus), Brittany enjoys hiking in the beautiful Pacific Northwest, mushroom hunting, silversmithing, beach combing, reusing and recycling, art creating, and soap making.
 
 ## Want to know more?
+
+[<img src="https://github.com/brittanyrjones/BrittanyJones/blob/master/Images/linkedin_circle_black-512%20(1).png" width="50" height="50"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/About%20Me.md)[<img src="https://github.com/brittanyrjones/BrittanyJones/blob/master/Images/twitter-2.png" width="50" height="50"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Education.md)[<img src="https://github.com/brittanyrjones/BrittanyJones/blob/master/Images/facebook-2.png" width="50" height="50"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Professional%20Experience.md)
+
