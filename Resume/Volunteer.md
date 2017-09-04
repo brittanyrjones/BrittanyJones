@@ -1,6 +1,8 @@
+# Volunteer Experience 
+
 [<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/About%20Me.md)[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Education.md)[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Professional%20Experience.md)[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Skills%20and%20Certifications.md)[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Volunteer.md)
 
-# Volunteer Experience 
+
 Imagine Children's Art Museum | Everett, WA    
 Sept. 2008 to December 2008
 
