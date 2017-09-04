@@ -3,6 +3,8 @@
 [<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/About%20Me.md)[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Education.md)[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Professional%20Experience.md)[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Skills%20and%20Certifications.md)[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Volunteer.md)
 
 
+
+
 _YouthCare Catalyst at Straley House_ | Seattle, WA    
 **Feb. 2017 to present** | Case Manager
 
