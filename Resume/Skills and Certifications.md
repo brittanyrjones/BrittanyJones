@@ -1,7 +1,6 @@
-[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/About%20Me.md)[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Education.md)[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Professional%20Experience.md)[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Skills%20and%20Certifications.md)[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Volunteer.md)
-
-
 # Skills
+
+[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/About%20Me.md)[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Education.md)[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Professional%20Experience.md)[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Skills%20and%20Certifications.md)[<img src="https://github.com/brittanyrjones/Resume2017/blob/master/Photos/2art.jpg" width="150" height="150"/>](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Volunteer.md)
 
 ## Hard Skills
 * Microsoft Office Suite
@@ -22,7 +21,6 @@
 * Problem Solving
 
 # Certifications
-
 * Nursing Assistant Registered
 * Blood Borne Pathogens
 * CSEC Youth Training
