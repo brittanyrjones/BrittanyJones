@@ -14,3 +14,6 @@ Finland was declared an independent nation, ending its autonomy within Russia.
 
 ## 2006   
 NASA reveals photographs taken by Mars Global Surveyor suggesting the presence of liquid water on Mars.
+
+___
+[About Brittany](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/About%20Me.md) | [Education](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Education.md) | [Professional Experience](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Professional%20Experience.md) | [Skills and Certifications](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Skills%20and%20Certifications.md) | [Volunteer Experience](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Volunteer.md)
