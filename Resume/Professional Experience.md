@@ -49,3 +49,6 @@ I was required to refurbish medical probes quickly, while maintaining perfect qu
 
 
 ### Professional references available upon request
+
+___
+[About Brittany](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/About%20Me.md) | [Education](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Education.md) | [Professional Experience](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Professional%20Experience.md) | [Skills and Certifications](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Skills%20and%20Certifications.md) | [Volunteer Experience](https://github.com/brittanyrjones/BrittanyJones/blob/master/Resume/Volunteer.md)
