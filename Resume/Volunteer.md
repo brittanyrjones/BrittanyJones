@@ -4,10 +4,13 @@
 
 
 #### _Imagine Children's Art Museum_ | Everett, WA
-**Sept. 2008 to December 2008**    
+**Sept. 2008 to December 2008**   
 ___
 #### _Cascade High School Track and Field_ | Everett, WA  
-**March 2010 to June 2010**   
+**March 2010 to June 2010**  
+___
+#### _Cascade High School Food Drive_ | Everett, WA  
+**Holiday Seasons 2005, 2006, 2007, 2008**   
 ___
 #### _Downtown Emergency Services Center_ | Seattle, WA   
 **Feb. 2015 to March 2015**   
