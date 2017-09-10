@@ -16,13 +16,13 @@ I work with at-risk and homeless youth to help break the cycle of homelessness i
 
 ___
 #### _Cocoon House_ | Everett, WA    
-**Jan. 2016-Feb. 2017** | Youth Counselor
+**Jan. 2016 to Feb. 2017** | Youth Counselor
 
 As residential counselor at the emergency and long term shelters, we work with at-risk and homeless youth to help break the cycle of homelessness in our community. We provide a safe and supportive environment while teaching the youth life skills, and helping them to reach their goals in education, housing, employment, health and wellness. 
 
 ___
 #### _The Arc of King County_ | Seattle, WA    
-**Feb. 2015-Jan. 2016** | Direct Support Professional
+**Feb. 2015 to Jan. 2016** | Direct Support Professional
 
 As a direct support professional my duty was to assist individuals with disabilities to lead a self-directed life and contribute to the community. This included supports for the individual at home, at the doctor, school, church, and other community places.
 
@@ -32,7 +32,7 @@ As a direct support professional my duty was to assist individuals with disabili
 
 ___
 #### _Downtown Emergency Services Center (DESC)_ | Seattle, WA   
-**Feb. 2015-Jan 2016** | Residential Counselor
+**Feb. 2015 to Jan 2016** | Residential Counselor
 
 As a residential counselor at DESC, my job was to serve the homeless and disabled populations in Seattle. Responsibilities of this job were vast, including responding to emergency situations and making fast, critical decisions. 
 
